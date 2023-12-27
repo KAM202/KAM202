@@ -2,7 +2,7 @@
 
 - 👀 I’m interested in new technologies.  
  
-- 🌱 I’m currently learning at university: Państwowa Uczelnia im. Stefana Batorego  
+- 🌱 I’m currently learning at university: Uniwersytet WSB Merito w Warszawie  
 
 - 📫 How to reach me: kamilwiosna005@wp.pl  
   
